@@ -1,4 +1,4 @@
 # Miro
 Entrega de wireframe ecommerce personal
 Zahida Chuquimarca
-https://miro.com/app/board/uXjVLnah0JQ=/?share_link_id=191587758796
+https://miro.com/welcomeonboard/VWN2T1poa3lqWDcvVE5iS21HZS92REJPUkpCNmlCeWpwdlNaZmtMa3k1ZTdWN25qcFViYVQ5YUlmY3RlRkdydG9YSnAwVGNmUjRCRVpDMlpSVzIvMFlFN0EybFoyL0hqYjk2MHZSczN4S3dFYzRPVUpGaDRveHN4VUlrdWczNTR3VHhHVHd5UWtSM1BidUtUYmxycDRnPT0hdjE=?share_link_id=797743368945
